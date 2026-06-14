@@ -1,0 +1,1 @@
+# Snagit-Screen-Capture-Setup
